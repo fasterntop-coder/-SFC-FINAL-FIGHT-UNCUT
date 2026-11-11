@@ -1,0 +1,2 @@
+# -SFC-FINAL-FIGHT-UNCUT
+[SFC] 파이널 파이트 UNCUT 무삭제본
